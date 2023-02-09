@@ -8,3 +8,6 @@ https://docs.google.com/document/d/1lvDscf-noysZreBQI_8C1DgBBLjWzwx8gOnfblKPpys/
 
 https://docs.google.com/presentation/d/106F-PhahzCJwA1oo-uKOmxh7GclRItCQ/edit?usp=sharing&ouid=110861299636962592311&rtpof=true&sd=true - презентация 
 https://docs.google.com/document/d/11FOFdeN0PIF2rI0JuSnOoKX0kJrUtFgt_9_m4gN8D4Y/edit -сертефикаты по олимпиаде 
+
+
+https://docs.google.com/document/d/1pbgFb51foP3TnO7763Rv0ep62OYrLDKXfmh7cWCcDxQ/edit?usp=sharing - Акселлератор 

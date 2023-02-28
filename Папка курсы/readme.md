@@ -11,3 +11,6 @@ https://docs.google.com/document/d/11FOFdeN0PIF2rI0JuSnOoKX0kJrUtFgt_9_m4gN8D4Y/
 
 
 https://docs.google.com/document/d/1pbgFb51foP3TnO7763Rv0ep62OYrLDKXfmh7cWCcDxQ/edit?usp=sharing - Акселлератор 
+
+
+https://docs.google.com/presentation/d/1uSE2hrWJ6Lyb_ee-Syap_BUJTHK8prya/edit?usp=share_link&ouid=110861299636962592311&rtpof=true&sd=true - презентация по интенсиву UX/UL - дизайн 

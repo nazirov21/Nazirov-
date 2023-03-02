@@ -14,3 +14,5 @@ https://docs.google.com/document/d/1pbgFb51foP3TnO7763Rv0ep62OYrLDKXfmh7cWCcDxQ/
 
 
 https://docs.google.com/presentation/d/1uSE2hrWJ6Lyb_ee-Syap_BUJTHK8prya/edit?usp=share_link&ouid=110861299636962592311&rtpof=true&sd=true - презентация по интенсиву UX/UL - дизайн 
+
+https://docs.google.com/document/d/12Y7W2foJE3u854VXLfJ8JdgLP0NJ8Bhbwh24DGjJJLI/edit - доска

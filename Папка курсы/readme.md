@@ -19,3 +19,4 @@ https://docs.google.com/document/d/12Y7W2foJE3u854VXLfJ8JdgLP0NJ8Bhbwh24DGjJJLI/
 
 https://docs.google.com/presentation/d/1stjB59vkenvD8MkXs_3DcmWYTMny2YR_/edit?usp=share_link&ouid=110861299636962592311&rtpof=true&sd=true - прзентация тг бот
 
+https://docs.google.com/document/d/1kaSR9ne8HsMII7gQ7ChpZ4Px_r6ULdLzkniZO6zWn1w/edit?usp=sharing - тезисы

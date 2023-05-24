@@ -23,3 +23,10 @@ https://docs.google.com/document/d/1kaSR9ne8HsMII7gQ7ChpZ4Px_r6ULdLzkniZO6zWn1w/
 
 
 https://live.skillbox.ru/webinars/design/sozdayom-prodayushee-izobrazhenie250423/ - интенсив 28. 04. 2023
+
+Бесплатный курс «Первый концепт-арт за 3 дня: учимся на котиках» - интенсив Skillbox
+https://intensive.skillbox.ru/2d-artist/ - курс 
+
+Бесплатный курс «Как создать 2D-пейзаж в Photoshop за 3 дня» - интенсив Skillbox
+https://intensive.skillbox.ru/2d-landscape/
+
